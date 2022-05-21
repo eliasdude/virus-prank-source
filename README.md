@@ -1,0 +1,2 @@
+# virus-prank-source
+hi! this is the source code for the virus prank. go watch the video! https://bit.ly/3LudqiF . you can modify the code , just, make something original. you can showcase the mods, and this source code, but you can't  do it without my notice. just comment on the video that you will use the source code and then you can do it. btw, when modding, make sure at the end of the prank, tell the person you're pranking that it's harmless.
